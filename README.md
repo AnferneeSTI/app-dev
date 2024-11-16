@@ -1,7 +1,3 @@
-Sure! Here's how a similar write-up could look, but about *Arcane*:
-
----
-
 # **Favorite Series: *Arcane***  
 
 **_*Arcane*_** is a critically acclaimed animated series released in **2021**, created by **Christian Linke** and **Alex Yee**. Based on the world of *League of Legends*, the series dives into themes of class divide, personal ambition, and the bonds of family and friendship, all set against a stunning steampunk aesthetic.
